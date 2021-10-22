@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- Gaming
+- Spending time with friends
+- Sleeping
+- Driving on the ATV
+- Walking
