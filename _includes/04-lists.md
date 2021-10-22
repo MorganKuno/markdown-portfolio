@@ -1,0 +1,5 @@
+- Gaming
+- Spending time with friends
+- Sleeping
+- Driving on the ATV
+- Walking
