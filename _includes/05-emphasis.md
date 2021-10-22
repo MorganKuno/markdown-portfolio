@@ -1,2 +1,2 @@
-_Italics be fire tho
-**Bold is also cool
+_Italics be fire tho_
+**Bold is also cool**
